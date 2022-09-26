@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am continuing my coding adventure, which I started with minecraft mods at the age of 10, by taking artificial intelligence training. However, I am trying to gain information on many subjects and thus take part in most projects. (In short, it can be said that I am trying to be a Swedish army knife.)<br>🤝 I can help your project with topics I know (and more).<br>🌱 I use the teaching-learning method (the Feynman technique for short) if you find any flaws in my codes, please let me know.<br>💬 If there is any problem, especially ai: avcim@tuta.io<br><br>Pronouns: <br>
+I am continuing my coding adventure, which I started with minecraft mods at the age of 10, by taking artificial intelligence training. However, I am trying to gain information on many subjects and thus take part in most projects. (In short, it can be said that I am trying to be a Swedish army knife.)<br>🤝 I can help your project with topics I know (and more).<br>🌱 I use the teaching-learning method (the Feynman technique for short) if you find any flaws in my codes, please let me know.<br>💬 If there is any problem, especially ai: avcim@tuta.io <br>
 
 
 ## 🌐 Socials:
